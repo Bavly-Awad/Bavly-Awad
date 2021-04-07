@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Bavly-Awad
 - 👀 I’m interested in Coding!
 - 🌱 I’m currently learning Python!
-- 📫 How to reach me Discord = Bavly Awad#2622, Email: Bavly.Awad@hotmail.com.
+- 📫 How to reach me Discord = KingBavly#2622, Email: Bavly.Awad@hotmail.com.
